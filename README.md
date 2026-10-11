@@ -1,2 +1,2 @@
-# than-uu-birthday
-: A birthday surprise for Than uu ❤️
+# thanuu-birthday
+: A birthday surprise for Thanuu ❤️
